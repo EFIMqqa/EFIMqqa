@@ -5,8 +5,8 @@
 - 📫 How to reach me:
 -   my GMail: efimkaepta@gmail.com
 -   my VK: https://vk.com/ef1m1050
--   my YT: 
-- 😄 Pronouns: ...
+-   my YT: https://www.youtube.com/@EFIM_immersive_fun
+- 😄 Pronouns: he\him
 - ⚡ Fun fact: ...
 
 <!---
